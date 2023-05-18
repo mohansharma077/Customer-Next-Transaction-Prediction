@@ -17,3 +17,9 @@
 
 
 ![download](https://github.com/mohansharma077/Customer-Next-Transaction-Prediction/assets/104629829/1a706ef4-7b42-415a-b4de-16c20fd894e6)
+
+
+![download](https://github.com/mohansharma077/Customer-Next-Transaction-Prediction/assets/104629829/190c9a9d-1a01-4096-929a-5dd00cf50b26)
+
+
+![download](https://github.com/mohansharma077/Customer-Next-Transaction-Prediction/assets/104629829/badcf63e-f76a-4927-bc84-770dec5bc54a)
