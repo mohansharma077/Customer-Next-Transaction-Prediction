@@ -8,4 +8,12 @@
 ![download](https://github.com/mohansharma077/Customer-Next-Transaction-Prediction/assets/104629829/d8041d1b-7954-4451-a33c-fe6ff1132d1d)
 
 
+![currency-transaction-report](https://github.com/mohansharma077/Customer-Next-Transaction-Prediction/assets/104629829/7bf73282-05d8-427f-8322-89136b4e43ec)
 
+
+
+![download](https://github.com/mohansharma077/Customer-Next-Transaction-Prediction/assets/104629829/e36a1a06-acca-4b10-9541-ed424685fe66
+
+
+
+![download](https://github.com/mohansharma077/Customer-Next-Transaction-Prediction/assets/104629829/1a706ef4-7b42-415a-b4de-16c20fd894e6)
